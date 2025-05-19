@@ -2,4 +2,4 @@ Name is Danny but you can still call me Bro or whatever. I'm a cishet male (scar
 
 No I'm not like source, don't treat me like source.
 
-I only go on safe to hang out with my bros
+I only go on safe to hang out with my bros.
